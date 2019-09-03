@@ -1,0 +1,1 @@
+Vários têm nomes bem idiotas. Fiz esses exercícios há um tempão.
